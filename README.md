@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @NetworkClausen and i am 23 years old
 - 👀 I’m interested in Networking and Security
-- 🌱 I’m currently learning Networking and IT stuff because i am a Data technian trainee
+- 🌱 I’m currently learning Networking and IT stuff because i am a Data technician trainee
